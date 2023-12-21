@@ -7,3 +7,4 @@
 + Lakshit Verma | 230906288 | vermalucky2004@gmail.com
 + Anuj Kamath | 220962446 | anujkamath1@gmail.com
 + Adwaiy Singh | 220968424 | adwaiy2913@gmail.com
++ Gaurav Gupta | 220905172 | hey.gauravg@gmail.com
