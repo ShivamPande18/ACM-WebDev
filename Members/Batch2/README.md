@@ -4,3 +4,4 @@
 + Shambhavi Sinha | 230953060 | shambhavisinha254@gmail.com 
 + Akash Shaw | 230953254 | akashshaw@acm.org
 + Aryan Gupta | 220905398 | iamaryan.ag@gmail.com
++ Lakshit Verma | 230906288 | vermalucky2004@gmail.com
