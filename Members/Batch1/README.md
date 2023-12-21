@@ -6,3 +6,4 @@
 - Manas Gupta | 230968318 | meetmanas04@gmail.com
 - Aditya Singh | 220907520 | adityasinghaks07@gmail.com
 - Riya Chougule | 230906112 | riyachougule13@gmail.com
+- Kumar Satyam | 230962226 | kumar.satyam25122003@gmail.com
