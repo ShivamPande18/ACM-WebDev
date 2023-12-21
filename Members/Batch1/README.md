@@ -4,3 +4,4 @@
 - Subham Chakraborty | 230953194 | subhamchakraborty2006@gmail.com
 - Pranshu Singh | 230911346 | impranshusingh@gmail.com
 - Manas Gupta | 230968318 | meetmanas04@gmail.com
+- Aditya Singh | 220907520 | adityasinghaks07@gmail.com
