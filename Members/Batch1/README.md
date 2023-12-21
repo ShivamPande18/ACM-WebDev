@@ -11,3 +11,4 @@
 - Deepam Ahuja | 230953160 | ahuja.deepam@gmail.com
 - Disha Jain | 220905554 | disha_18@outlook.com
 - Misha Jain | 230962036 | mishajain100@gmail.com
+- Vidhu Sri varenya | 220953136 | vsrivarenya@gmail.com
