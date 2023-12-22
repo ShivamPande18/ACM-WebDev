@@ -13,3 +13,4 @@
 - Misha Jain | 230962036 | mishajain100@gmail.com
 - Rhea Tiwari|220962294| rheatiwari1404@gmail.com 
 - Shivanshi | 230906080 | shivanship503@gmail.com
+- Vidhu Sri varenya | 220953136 | vsrivarenya@gmail.com
