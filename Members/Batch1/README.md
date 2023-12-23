@@ -17,3 +17,4 @@
 - Kaaviya Kalyanakumar | 230911060 | kaaviyak89@gmail.com
 - Prachi Bhat | 220953218 | prachi.bhat123@gmail.com
 - Vedika Gupta | 220905186 | vedikagupta507@gmail.com
+- Ridhima Verma | 230911022 | vermaridhima094@gmail.com
